@@ -6,6 +6,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 Software Developer
 ------------------
 
+* 🌍  I'm based in Thailand
 * ✉️  You can contact me at [suwatchai.bo@ku.th](mailto:suwatchai.bo@ku.th)
 
 <p align="left">
